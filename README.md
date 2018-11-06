@@ -1,2 +1,2 @@
 # Hello world , I am silviaKK !
-It's so hard!
+I'll stick to it!
